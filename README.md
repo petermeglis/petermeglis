@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Currently hitting keys on my keyboard to make cool stuff
+
 <!--
 **petermeglis/petermeglis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
