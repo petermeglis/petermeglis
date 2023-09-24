@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Currently hitting keys on my keyboard to make stuff
+I'm currently traveling the world searching for fulfillment.
 
 Check out https://petermeglis.com
 
