@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm currently traveling the world searching for fulfillment.
+🌎 Traveling the world searching for fulfillment.
 
 Check out https://petermeglis.com
 
